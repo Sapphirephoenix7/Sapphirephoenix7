@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sapphirephoenix7
 - 👀 I’m interested in traveling, cars, watches etc
 - 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on 
+- 💞️ Currently going with the flow!
 - 📫 How to reach me ...minuautoworld@gmail.com
 - 
 
